@@ -1,6 +1,6 @@
 ## BROOOOOOOOOOOOOO
 
-- Con89524 -> Convex89524
+- Con89524 <-> Convex89524
 - HL33333333!
 ---
 - 你们快去玩Roblox反应堆。
