@@ -7,7 +7,7 @@
 
 ---
 ### 赞助🤩🤩🤩
-- 无。
+- [神秘爱发电](https://afdian.com/a/89524_)
 <!--
 **Convex89524/Convex89524** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
